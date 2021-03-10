@@ -180,6 +180,8 @@ Fomos introduzidos ao livro "Ensaio Sobre a Cegueira", de José Saramago, e inic
 
 - [Clipe da música "É tudo pra ontem", do Emicida](https://www.youtube.com/watch?v=qbQC60p5eZk).
 
+Discutimos as relações entre as obras e as críticas acerca delas.
+
 Discutimos os seguintes tópicos relacionados com as obras acima:
 
 - "Partir, voltar e repartir". Essa sequência se repete diversas vezes ao longo da música.
@@ -188,3 +190,79 @@ Discutimos os seguintes tópicos relacionados com as obras acima:
 - "E se fossemos todos cegos?" Esse foi o questionamento de Saramago que originou o livro "Ensaio Sobre a Cegueira". Ele chegou à conclusão de que, de certa forma, já somos todos cegos.
 - Ao assistir ao trailer do filme e extrair mais informações sobre a obra, concluímos que a real visão é adquirida.
 - O fato da cegueira retratada ser branca mostra um aspecto importante da obra. Isso porque, quando questionado sobre a cor da cegueira, fez questão de enfatizar que ela era branca, indo contra o pensamento de outros que alegavam que a cegueira é negra.
+
+## Vida Maria: Debate
+> 05/03/2021 (Aula 1)
+
+Foi-nos apresentado o curta "Vida Maria' e debatemos acerca da obra.
+
+> Link do filme : https://www.youtube.com/watch?v=yFpoG_htum4
+
+## Sementes: Debate
+> 05/03/2021 (Aula 2)
+
+Vimos o clipe da música "Sementes" do Emicida.
+
+> Link do filme: https://www.youtube.com/watch?v=C7l0AB--I3c
+
+## Produção de Texto: Debate
+> 08/03/2021
+
+Debate é considerado produção de texto, seja escrito ou não.
+
+### Sobre o gênero:
+- Gênero oral;
+- Linguagem argumentativa;
+- Defender uma ideia ou ponto de vista;
+- Temas polêmicos;
+- Os argumentos servem para confirmar ou negar um posicionamento;
+
+### Debates públicos regrados
+- Geralmente usado em salas de aula;
+- Os alunos podem desenvolver os seus conhecimentos e ampliar seu ponto de vista acerca de determinado assunto;
+- Cada participante deve expressar a sua perspectiva sobre um tema, sempre apresentando argumentos coerentes;
+- Cada debatedor deve trazer conhecimentos ao debate, contribuindo à compreensão do tema e uma visão ampla;
+- Não existe um "vencedor";
+- Existe um moderador;
+
+### O papel do moderador
+- Regula a interação;
+- Organiza os turnos de fala;
+- Apresentar os participantes;
+- Arbitrar e administrar os conflitos;
+- Conciliar as posições, sem tomar partido de ninguém, transparecer imparcialidade;
+- Retomar o foco da discussão;
+- Encerrar o debate;
+
+### Estratégias argumentativas
+
+#### Argumentação
+Consiste na exposição de argumentos com o objetivo de convencer e persuadir.
+
+#### Por raciocínio lógico
+Consiste na criação de nexos causais que sustentam o raciocínio defendido. Com encadeamento de ideis conexas e loógicas.
+
+> 📝 Nexos causais: relações de causa e efeito.
+
+#### Por comprovação
+Consiste na exposição de informações objetivas, com dados numéricos, percentuais e estatísticas.
+
+#### Por citação
+Consiste na referência ao ponto de vista em pessoas consideradas autoridades em determinados assuntos.
+
+#### Contra-argumentação
+Consiste em prever e antecipar os argumentos contrários às próprias ideias e posições defendidas. Refutações.
+
+#### Dimensões da oralidade no debate
+A presença de marcas de oralidade em um debate depende do nível de informalidade que ele apresenta.
+
+#### Perguntas retóricas
+Perguntas respondidas pelo próprio autor, a fim de desestabilizar o adversário e causar reflexão dos espectadores.
+
+---
+
+### Considerar sempre:
+- Deve se utilizar a variedade culta da língua.
+- Evitar gírias e palavra de baixo calão e marcas de oralidade ("né", "daí", etc.)
+- Planejar a participação, o tom de voz adequado, as palavras adequadas, com fim de contribuir para atenção e compreensão da plateia.
+- O debatedor e o mediador deve estar atento à reação dos espectadores para ajustar a dinâmica do debate.
